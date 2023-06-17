@@ -1,4 +1,3 @@
-- Hi, I’m @jurfalino
 - PM/PO with software development background. Love innovation, BI, crypto, IOT and how technology can help make our world better. 
 
 
